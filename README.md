@@ -11,6 +11,4 @@ thank you for visiting my profile ! 🎀
 <a href="https://www.roblox.com/users/1570715868/profile">roblox !</a>
 ─ ⋆⋅☆⋅⋆ ─
 <a href="https://open.spotify.com/user/54dj9icwgltjjf8zfkwk6cr5k">spotify !</a>
-─ ⋆⋅☆⋅⋆ ─
-<a href="https://scp-wiki.wikidot.com/">scp wiki !</a>
 🎀
