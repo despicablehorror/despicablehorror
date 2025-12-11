@@ -1,16 +1,16 @@
-## Hi there 👋
 
-<!--
-**despicablehorror/despicablehorror** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![flowa?? FO MEE???](https://github.com/user-attachments/assets/4464da0f-8ebe-4f7b-b30d-ef506877f4c6)
 
-Here are some ideas to get you started:
+thank you for visiting my profile ! 🎀
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🎀
+<a href="https://scp-wiki.wikidot.com/drclef-member-page">clef's personnel file 【 13+! (·•᷄ࡇ•᷅ ) 】</a>
+─ ⋆⋅☆⋅⋆ ─
+<a href="https://despicablehorror.atabook.org/?page=1">atabook !</a>
+─ ⋆⋅☆⋅⋆ ─
+<a href="https://www.roblox.com/users/1570715868/profile">roblox !</a>
+─ ⋆⋅☆⋅⋆ ─
+<a href="https://open.spotify.com/user/54dj9icwgltjjf8zfkwk6cr5k">spotify !</a>
+─ ⋆⋅☆⋅⋆ ─
+<a href="https://scp-wiki.wikidot.com/">scp wiki !</a>
+🎀
