@@ -4,7 +4,7 @@
 thank you for visiting my profile ! 🎀
 
 🎀
-<a href="https://scp-wiki.wikidot.com/drclef-member-page">clef's personnel file 【 13+! (·•᷄ࡇ•᷅ ) 】</a>
+<a href="https://scp-wiki.wikidot.com/drclef-member-page">clef's personnel file 【 13+ content 】</a>
 ─ ⋆⋅☆⋅⋆ ─
 <a href="https://despicablehorror.atabook.org/?page=1">atabook !</a>
 ─ ⋆⋅☆⋅⋆ ─
