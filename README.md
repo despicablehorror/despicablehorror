@@ -8,11 +8,8 @@ But please take your time here :)
 
 
 C+H is always accepted, but pls don't cover or h*mp me <3
-
 DNC for any of my characters, but asking for inspo is always alright since I usually do cosplays.
-
 SCP fans please INT !! :)
-
 I am a bi fictosexual and aroace, so no I'm not gonna touch you :3
 
 I love my husband ! ❤︎
