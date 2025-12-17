@@ -35,5 +35,3 @@ Links !
 ─ ⋆⋅☆⋅⋆ ─
 <a href="https://open.spotify.com/user/54dj9icwgltjjf8zfkwk6cr5k">spotify !</a>
 🎀
-
-![Custom Header in Chixa Font](assets/chixa_header.svg)
