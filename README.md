@@ -6,6 +6,7 @@ thank you for visiting my profile ! 🎀
 If you've come here to sign my ata, the link is at the bottom of the page along with links to some other things ! 
 But please take your time here :)
 
+❤︎
 
 C+H is always accepted, but pls don't cover or h*mp me <3
 
@@ -15,13 +16,13 @@ SCP fans please INT !! :)
 
 I am a bi fictosexual and aroace ! 
 
-~
+❤︎
 
-~ Interests:
+Interests:
 
 SCP, DHMIS, Deltarune/Undertale, Blocktales, REG, Animal Jam, Femtanyl, CRK, Weirdcore/Dreamcore, GHE and Dandy's World. There are some others. idk.
 
-~
+❤︎
 
 Links !
 
