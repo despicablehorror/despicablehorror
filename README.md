@@ -13,9 +13,12 @@ DNC for any of my characters, but asking for inspo is always alright since I usu
 
 SCP fans please INT !! :)
 
-I am a bi fictosexual and aroace, so no I'm not gonna touch you :3
+I am a bi fictosexual and aroace ! 
 
-I love my husband ! ❤︎
+
+
+
+
 
 ~ Interests:
 
