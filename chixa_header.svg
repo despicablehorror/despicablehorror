@@ -1,0 +1,16 @@
+<svg width="400" height="100" xmlns="www.w3.org">
+  <style>
+    /* This style block is read by the browser when displaying the SVG */
+    .chixa-text {
+      font-family: 'Chixa', sans-serif;
+      font-size: 24px;
+      fill: #FF0055; /* A bright pink/red color */
+      font-weight: bold;
+    }
+  </style>
+  
+  <!-- Add a background rectangle for visibility if needed -->
+  <!-- <rect width="100%" height="100%" fill="#161b22""")/>> -->
+
+  <text x="20" y="55" class="chixa-text">Welcome to my Repository!</text>
+</svg>
