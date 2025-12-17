@@ -15,10 +15,8 @@ SCP fans please INT !! :)
 
 I am a bi fictosexual and aroace ! 
 
-
-
-
-
+❤︎
+❤︎
 
 ~ Interests:
 
