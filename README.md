@@ -18,6 +18,7 @@ I am a bi fictosexual and aroace, so no I'm not gonna touch you :3
 I love my husband ! ❤︎
 
 ~ Interests:
+
 SCP, DHMIS, Deltarune/Undertale, Blocktales, REG, Animal Jam, Femtanyl, CRK, Weirdcore/Dreamcore, GHE and Dandy's World. There are some others. idk.
 
 Links !
