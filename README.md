@@ -3,6 +3,18 @@
 
 thank you for visiting my profile ! 🎀
 
+C+H is always accepted, but pls don't cover or h*mp me <3
+DNC for any of my characters, but asking for inspo is always alright since I usually do cosplays.
+SCP fans please INT !! :)
+I am a bi fictosexual and aroace, so no I'm not gonna touch you :3
+
+I love my husband ! ❤︎
+
+~ Interests:
+SCP, DHMIS, Deltarune/Undertale, Blocktales, REG, Animal Jam, Femtanyl, CRK, Weirdcore/Dreamcore, GHE and Dandy's World. There are some others. idk.
+
+Links !
+
 🎀
 <a href="https://scp-wiki.wikidot.com/drclef-member-page">clef's personnel file 【 13+ content 】</a>
 ─ ⋆⋅☆⋅⋆ ─
@@ -12,3 +24,4 @@ thank you for visiting my profile ! 🎀
 ─ ⋆⋅☆⋅⋆ ─
 <a href="https://open.spotify.com/user/54dj9icwgltjjf8zfkwk6cr5k">spotify !</a>
 🎀
+
