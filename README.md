@@ -4,7 +4,6 @@
 thank you for visiting my profile ! 🎀
 
 If you've come here to sign my ata, the link is at the bottom of the page along with links to some other things ! 
-
 But please take your time here :)
 
 
