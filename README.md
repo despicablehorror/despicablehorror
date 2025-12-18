@@ -1,4 +1,3 @@
-
 ![flowa?? FO MEE???](https://github.com/user-attachments/assets/4464da0f-8ebe-4f7b-b30d-ef506877f4c6)
 
 thank you for visiting my profile ! 🎀
@@ -35,3 +34,5 @@ Links !
 ─ ⋆⋅☆⋅⋆ ─
 <a href="https://open.spotify.com/user/54dj9icwgltjjf8zfkwk6cr5k">spotify !</a>
 🎀
+
+font=[Chixa]
