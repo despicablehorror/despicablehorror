@@ -9,19 +9,25 @@ I am still learning how to format on GitHub, so my apologies for my profile look
 
 ❤︎
 
+Under 13s DNI
+
+❤︎
+
 `Pony Town:`
 
-C+H is always accepted, but pls don't cover or h*mp me <3
+C+H is always accepted, but pls don't cover me
 
-DNC for any of my characters, but asking for inspo is always alright since I usually do cosplays.
+W2i + B2i 
 
-SCP fans please INT !! :
+DNC
+
+SCP fans please INT !! :3
 
 ❤︎
 
 `Interests:`
 
-SCP, DHMIS, Deltarune/Undertale, Blocktales, REG, Animal Jam, Femtanyl, CRK, Weirdcore/Dreamcore, GHE and Dandy's World. There are some others. idk.
+SCP, DHMIS, Deltarune/Undertale, Blocktales, Regretevator, Animal Jam, Femtanyl, CRK, Weirdcore/Dreamcore, GHE and Dandy's World. There are some others. idk.
 
 ❤︎
 
@@ -31,7 +37,7 @@ I identify as a pan fictosexual and aroace, so you can call me a 'hopelesss roma
 
 I'm sorry if I don't sound interested in what you're talking about if I reply with something like 'Mmhm', unless what you're talking about is GENUINELY boring.
 
-You can call me Kris, but if you forget, you can call me Dess because it's a part of my username which I often use 【 despicable_horrror, 'des' 】
+You can call me Kris, but if you forget, you can call me Dess because it's a part of my username which I often use in a lot of places【 despicable_horrror, 'des' 】
 
 ❤︎
 
@@ -40,6 +46,14 @@ You can call me Kris, but if you forget, you can call me Dess because it's a par
 "They'll say anything about me... Except the truth." -Dr. Alto Clef
 
 "My world, adventures, dreams… You are my everything!" -Pure Vanilla Cookie, Viridescent Daydream
+
+❤︎
+
+`Extras:`
+
+If you've followed me in hopes I follow you back, sorry hon, that's a no. If I KNOW you, then yes, I will follow you back. ily
+
+If I'm following someone problematic, please let me know on my ata! 
 
 ❤︎
 
