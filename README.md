@@ -31,6 +31,8 @@ I identify as a pan fictosexual and aroace, so you can call me a 'hopelesss roma
 
 I'm sorry if I don't sound interested in what you're talking about if I reply with something like 'Mmhm', unless what you're talking about is GENUINELY boring.
 
+You can call me Kris, but if you forget, you can call me Dess because it's a part of my username which I often use 【 despicable_horrror, 'des' 】
+
 ❤︎
 
 `WIP:`
