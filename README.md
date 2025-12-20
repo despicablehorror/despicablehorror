@@ -25,7 +25,7 @@ SCP, DHMIS, Deltarune/Undertale, Blocktales, REG, Animal Jam, Femtanyl, CRK, Wei
 
 ❤︎
 
-`A bit about me:`
+`A bit about me【 WIP 】:`
 
 I identify as a pan fictosexual and aroace, so you can call me a 'hopelesss romantic' all you like, but it's true.
 
