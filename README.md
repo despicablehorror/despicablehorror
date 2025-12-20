@@ -5,7 +5,7 @@ thank you for visiting my profile ! 🎀
 If you've come here to sign my ata, the link is at the bottom of the page along with links to some other things ! 
 But please take your time here :)
 
-I am still learning how to format on GitHub, so my apologies for my profile looking a bit basic. If you have any tutorials, please lmk on my ata!
+I am still learning how to format on GitHub, so my apologies for my profile looking a bit basic. If you have any tutorials or ideas, please lmk on my ata!
 
 ❤︎
 
