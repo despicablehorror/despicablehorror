@@ -33,7 +33,7 @@ SCP, DHMIS, Deltarune/Undertale, Blocktales, Regretevator, Animal Jam, Femtanyl,
 
 `A bit about me【 WIP 】:`
 
-I identify as a pan fictosexual and aroace, so you can call me a 'hopelesss romantic' all you like, but it's true.
+I identify as a pan fictosexual and aroace, so you can call me a 'hopelesss romantic' all you like, but it's true. I also identify as demiboyflux, contemplating transmasc or non-binary.
 
 I'm sorry if I don't sound interested in what you're talking about if I reply with something like 'Mmhm', unless what you're talking about is GENUINELY boring.
 
