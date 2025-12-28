@@ -15,6 +15,8 @@ Under 13s DNI
 
 `Pony Town:`
 
+Usually found on Safe Server 1 and 2 around carrot farm or bakery. USUALLY. I do often go sit in other places, too.
+
 C+H is always accepted, but pls don't cover me
 
 W2i + B2i 
