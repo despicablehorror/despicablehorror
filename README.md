@@ -66,6 +66,8 @@ If I'm following someone problematic, please let me know on my ata!
 ─ ⋆⋅☆⋅⋆ ─
 <a href="https://despicablehorror.atabook.org/?page=1">atabook !</a>
 ─ ⋆⋅☆⋅⋆ ─
+<a href="https://despicablehorror.straw.page">strawpage ! 【 NEW! 】</a>
+─ ⋆⋅☆⋅⋆ ─
 <a href="https://www.roblox.com/users/1570715868/profile">roblox !</a>
 ─ ⋆⋅☆⋅⋆ ─
 <a href="https://open.spotify.com/user/54dj9icwgltjjf8zfkwk6cr5k">spotify !</a>
