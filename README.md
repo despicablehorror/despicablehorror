@@ -8,7 +8,7 @@ Hey, I'm Dess. Read my strawpage for more general information, and a list of all
 
 ❤︎
 
-- DNI: Pedos, zoos, homophobes, proshippers and under 13s. Common sense, right?
+- DNI: Pedos, zoos, homophobes and proshippers. Common sense, right? Also DNI under 13s, you guys are too young for me to gaf
 
 - Yumeshipper or whatever. I like Dr. Clef, *okay?* It's just him so I'm chill, and open to talking about him ^^
 
