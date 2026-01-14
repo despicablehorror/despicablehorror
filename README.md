@@ -1,4 +1,4 @@
-Hey, I'm Dess. Read my strawpage for more general information, and a list of all my fandoms are in another repository <a href="https://github.com/despicablehorror/fandoms">here,</a> or below this one
+Hey, I'm Dess. Read my strawpage for more general information, and a list of all my fandoms are in another repository <a href="https://github.com/despicablehorror/fandoms">here,</a> or below this one if you're curious :)
 
 ![38111d7e-a8a6-4d52-8b47-02e7b71db811](https://github.com/user-attachments/assets/31ee9075-e280-4d9d-8d4d-3c647a73af33)
 
@@ -8,15 +8,17 @@ Hey, I'm Dess. Read my strawpage for more general information, and a list of all
 
 ❤︎
 
-- DNI: Pedos, zoos, homophobes, proshippers and under 13s.
+- DNI: Pedos, zoos, homophobes, proshippers and under 13s. Common sense, right?
 
-- Yumeshipper or whatever. I like Dr. Clef, *okay?*
+- Yumeshipper or whatever. I like Dr. Clef, *okay?* It's just him so I'm chill, and open to talking about him ^^
 
 - ADHD and autistic so iwc
 
 - I will always ask if you have any interests in SCP, if we've just met.
 
 - If you're nice with me, I'll be nice with you :)
+
+- тотя💔✌
 
 ❤︎
 
