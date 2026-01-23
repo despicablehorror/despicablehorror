@@ -10,7 +10,7 @@ Hey, I'm Dess. Read my strawpage for more general information, and a list of all
 
 - DNI: Pedos, zoos, homophobes and proshippers. Common sense, right? Also DNI under 13s, you guys are too young for me to gaf
 
-- DR. CLEF'S NUMBER 1 YUMESHIPPER AND FICTIONKIN.
+- DR. CLEF'S NUMBER 1 YUMESHIPPER AND FICTIONKIN. I also go by Clef or Alto only if close :3
 
 - ADHD and autistic so iwc
 
