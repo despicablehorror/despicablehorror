@@ -9,6 +9,7 @@ Hey, I'm Dess. Read my strawpage for more general information, and a list of all
 ❤︎
 
 - DNI: Pedos, zoos, homophobes and proshippers. Common sense, right? Also DNI under 13s, you guys are too young for me to gaf
+- Additional fandom DNI: Dandy's World, BSD, Forsaken, Boyfriends To Death, and TFC. Will add to this list sigh
 
 - DR. CLEF'S NUMBER 1 YUMESHIPPER AND FICTIONKIN. I also go by Clef or Alto only if close :3
 
@@ -26,7 +27,7 @@ Hey, I'm Dess. Read my strawpage for more general information, and a list of all
 
 - Mostly found on Safe Server 1 around carrot farm, bakery or docks with my scp ponies. My github is almost always on my profile.
 
-- C+H is always accepted unless said otherwise. Don't randomly cover me.
+- C+H is always accepted unless said otherwise. Don't randomly cover me, I have CD【 cover discomfort 】and it overwhelms me when I can't see what I'm doing.
 
 - w2i, b2i, dnc and allat.
 
