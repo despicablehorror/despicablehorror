@@ -9,7 +9,7 @@ Hey, I'm Dess. Read my strawpage for more general information, and a list of all
 ❤︎
 
 - DNI: Pedos, zoos, homophobes and proshippers. Common sense, right? Also DNI under 13s, you guys are too young for me to gaf
-ALSO DNI ADMINBRIGHT SUPPORTERS AND SCPBLR :3
+ALSO DNI ADMINBRIGHT SUPPORTERS
 
 ❤︎
 
