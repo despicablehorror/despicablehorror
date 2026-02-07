@@ -8,12 +8,12 @@ Hey, I'm Dess / Wren. Read my strawpage for more general information, and a list
 
 ❤︎
 
-- DNI: Pedos, zoos, homophobes and proshippers. Common sense, right? Also DNI under 13s, you guys are too young for me to gaf
-ALSO DNI ADMINBRIGHT SUPPORTERS
+- DNI: Pedos, zoos, homophobes, proshippers and other weirdos out there. Common sense, right? Also DNI under 13s, you guys are too young for me to gaf
+ALSO DNI ADMINBRIGHT/THEDUCKMAN SUPPORTERS
 
 ❤︎
 
-- DR. CLEF'S NUMBER 1 YUMESHIPPER AND FICTIONKIN. I also go by Clef or Alto if close :3
+- DR. CLEF'S NUMBER 1 YUMESHIPPER AND FICTIONKIN 【 doubles dni 】. I also go by Clef, Alto or Wren if close :3
 
 - ADHD and autistic so iwc
 
