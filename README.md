@@ -7,7 +7,6 @@ Hey, I'm Des / Wren. Read my strawpage for more general information, and a list 
 <a href="https://despicablehorror.atabook.org/">atabook</a>
 ~
 <a href="https://pronouns.cc/@despicable_horror">pronouns</a>
-https://pronouns.cc/@despicable_horror
 
 ❤︎
 
