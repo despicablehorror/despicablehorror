@@ -13,9 +13,9 @@ ALSO DNI ADMINBRIGHT/THEDUCKMAN SUPPORTERS
 
 ❤︎
 
-- DR. CLEF'S NUMBER 1 YUMESHIPPER AND FICTIONKIN 【 doubles dni 】. I also go by Clef, Alto or Wren if close :3
+- DR. CLEF'S NUMBER 1 YUMESHIPPER AND FICTIONKIN 【 doubles dni 】LELELELE
 
-- ADHD and autistic so iwc
+- ADHD and autistic so iwc blehh I like talking
 
 - I will always ask if you have any interests in SCP, if we've just met.
 
