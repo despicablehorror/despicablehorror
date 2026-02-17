@@ -31,7 +31,7 @@ ALSO DNI ADMINBRIGHT/THEDUCKMAN SUPPORTERS
 
 - Mostly found on Safe Server 1 around carrot farm, bakery or docks with my scp ponies. My github is almost always on my profile.
 
-- C+H is always accepted unless said otherwise. Don't randomly cover me, I have CD【 cover discomfort 】and it overwhelms me when I can't see what I'm doing.
+- C+H is always accepted unless said otherwise. Don't cover me pls, I get overwhelmed when I can't see what I'm doing O_o
 
 - w2i, b2i, dnc and allat.
 
