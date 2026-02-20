@@ -17,6 +17,8 @@ ALSO DNI ADMINBRIGHT/THEDUCKMAN SUPPORTERS
 
 - DR. CLEF'S NUMBER 1 YUMESHIPPER AND FICTIONKIN 【 doubles dni 】LELELELE
 
+- idk how to format :3
+
 - ADHD and autistic so iwc blehh I like talking
 
 - I will always ask if you have any interests in SCP, if we've just met.
