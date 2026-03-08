@@ -8,6 +8,7 @@ this is a wip ok<br>
   <sub>bottom text</sub><br>
   <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://despicablehorror.straw.page">strawpage</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a>  ㅤ ㅤ<br>
 <sub>profile layout: @cleffed on github</sub><br>
+My discord is @despicable_horror<br>
   <br>
 <img src="https://komarev.com/ghpvc/?username=despicablehorror&abbreviated=true&color=blueviolet&label=󠁪󠁪󠁝󠁝󠁵󠁵Visitors" alt=""/>
 </p>
