@@ -2,9 +2,9 @@
 </p>
   <h3 align="center">
 hi</h3>
-<p align="center">
+  <p align="center">
 <sub><code>hl + hlvrai, scp, ninah</sub></code><br>
-<p align="center">
+  <p align="center">
 this is a wip ok<br>
   <sub>bottom text</sub><br>
  <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://github.com/despicablehorror/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a  ㅤ ㅤ<br>
@@ -13,4 +13,4 @@ this is a wip ok<br>
   <p align="center">
   <br>
 <img src="https://komarev.com/ghpvc/?username=despicablehorror&abbreviated=true&color=blueviolet&label=󠁪󠁪󠁝󠁝󠁵󠁵Visitors" alt=""/>
-</p>
+  <p>
