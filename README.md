@@ -12,3 +12,4 @@ wip but slowly making me lose my shit <3<br>
   <sub>sorry if it looks messy/broken on some devices :((</sub><br>
   <br>
   <img src="https://github.com/user-attachments/assets/abb590ab-602e-45e7-bc35-79a886156eca" width="380px">
+
