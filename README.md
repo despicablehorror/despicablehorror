@@ -5,7 +5,7 @@ hi</h3>
 <p align="center">
 <sub><code>hl + hlvrai, scp, ninah</sub></code><br>
 wip but slowly making me lose my shit <3<br>
-  <sub></sub></sub><br>
+  <sub>bottom text</sub><br>
  <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://github.com/despicablehorror/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a>  ㅤ ㅤ<a href="https://despicablehorror.straw.page">strawpage</a    ㅤ ㅤ<br>
   <br>
   <sub>repo layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
