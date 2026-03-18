@@ -9,3 +9,4 @@ wip but slowly making me lose my shit <3<br>
  <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://github.com/despicablehorror/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a>  ㅤ ㅤ<a href="https://despicablehorror.straw.page">strawpage</a    ㅤ ㅤ<br>
   <br>
   <sub>repo layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
+  <sub>sorry if it looks messy/broken on some devices :((</sub><br>
