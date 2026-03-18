@@ -11,6 +11,6 @@ wip<br>
   <br>
   <br>
   <sub>repo layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
-  <sub>layout might be broken on some devices</sub><br>
+  <sub>layout might be broken on some devices + some text wont be visible for light mode users</sub><br>
   <br>
   <img src="https://github.com/user-attachments/assets/abb590ab-602e-45e7-bc35-79a886156eca" width="380px">
