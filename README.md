@@ -3,7 +3,7 @@
   <h3 align="center">
 hi</h3>
 <p align="center">
-<sub><code>(interests)</sub></code><br>
+<sub><code>hl + hlvrai, scp, ninah</sub></code><br>
 wip but slowly making me lose my shit <3<br>
   <sub></sub></sub><br>
  <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://github.com/despicablehorror/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a>  ㅤ ㅤ<a href="https://despicablehorror.straw.page">strawpage</a    ㅤ ㅤ<br>
