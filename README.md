@@ -4,12 +4,13 @@
 hi</h3>
 <p align="center">
 <sub><code>hl + hlvrai, scp, ninah</sub></code><br>
-wip but slowly making me lose my shit <3<br>
-  <sub>bottom text</sub><br>
- <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://github.com/despicablehorror/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a>  ㅤ ㅤ<a href="https://despicablehorror.straw.page">strawpage</a    ㅤ ㅤ<br>
+  <br>
+wip<br>
+₊˚ ✧ ━━━━━━━━ ⊱⋆⊰ ━━━━━━━━ ✧ ₊˚<br>
+ <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://github.com/despicablehorror/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a    ㅤ ㅤ<br>
+  <br>
   <br>
   <sub>repo layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
-  <sub>sorry if it looks messy/broken on some devices :((</sub><br>
+  <sub>layout might be broken on some devices</sub><br>
   <br>
   <img src="https://github.com/user-attachments/assets/abb590ab-602e-45e7-bc35-79a886156eca" width="380px">
-
