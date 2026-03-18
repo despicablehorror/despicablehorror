@@ -6,5 +6,5 @@ hi</h3>
 <sub><code>(interests)</sub></code><br>
 wip but slowly making me lose my shit <3<br>
   <sub>repo layout: @cleffed on github</sub><br>
-  <a href= "https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href= "https://despicablehorror.atabook.org/">atabook</a><br>
+ <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://github.com/despicablehorror/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a  ㅤ ㅤ<br>
   <br>
