@@ -4,11 +4,9 @@
 hi</h3>
 <p align="center">
 <sub><code>hl + hlvrai, scp, ninah</sub></code><br>
-<p align="center">
 this is a wip ok<br>
   <sub>bottom text</sub><br>
- <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://github.com/despicablehorror/fandoms">fandoms</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a  ㅤ ㅤ<br>
-  <p align="center">
+  <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://despicablehorror.straw.page">strawpage</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a>  ㅤ ㅤ<br>
 <sub>profile layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
   <br>
 <img src="https://komarev.com/ghpvc/?username=despicablehorror&abbreviated=true&color=blueviolet&label=󠁪󠁪󠁝󠁝󠁵󠁵Visitors" alt=""/>
