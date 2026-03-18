@@ -10,4 +10,4 @@ this is a wip ok<br>
 <sub>profile layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
   <br>
 <img src="https://komarev.com/ghpvc/?username=despicablehorror&abbreviated=true&color=blueviolet&label=󠁪󠁪󠁝󠁝󠁵󠁵Visitors" alt=""/>
-</p>
+<p align="center">
