@@ -3,11 +3,11 @@
   <h3 align="center">
 hi</h3>
 <p align="center">
-<sub><code>hl + hlvrai, scp, ninah</sub></code><br>
+<sub><code>*insert fandoms/interests*</sub></code><br>
 this is a wip ok<br>
   <sub>bottom text</sub><br>
   <a href="https://pronouns.cc/@despicable_horror">pronouns</a>  ㅤ ㅤ<a href="https://despicablehorror.straw.page">strawpage</a>  ㅤ ㅤ<a href="https://despicablehorror.atabook.org/">atabook</a>  ㅤ ㅤ<br>
-<sub>profile layout: <a href="https://github.com/cleffed">@cleffed</a> on github</sub><br>
+<sub>profile layout: @cleffed on github</sub><br>
   <br>
-<img src="https://komarev.com/ghpvc/?username=despicablehorror&abbreviated=true&color=blueviolet&label=󠁪󠁪󠁝󠁝󠁵󠁵Visitors" alt=""/>
-<p align="center">
+<img src="https://komarev.com/ghpvc/?username=despicablehorror&abbreviated=true&color=blueviolet&label=Visitors" alt=""/>
+</p>
