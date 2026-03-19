@@ -15,6 +15,5 @@ wip<br>
   <br>
   <img src="https://github.com/user-attachments/assets/abb590ab-602e-45e7-bc35-79a886156eca" width="380px">
   <br>
-<img src="https://komarev.com/ghpvc/?username=despicablehorror&abbreviated=true&color=blue&label=Visitors" alt=""/>
 
 ![](https://hit.yhype.me/github/profile?account_id=249067344)
